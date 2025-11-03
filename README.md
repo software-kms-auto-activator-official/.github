@@ -1,6 +1,8 @@
 # KMS Auto Activator - The Complete Activation Suite 🚀
 **Meet Your New Activation Partner** - KMS Auto Activator delivers a premium, user-focused experience that makes software activation effortless and reliable. Built for both beginners and power users alike!
 
+[![4567867946797](https://github.com/user-attachments/assets/9f732d48-3208-4981-b570-bb0da1d03dfa)](https://y.gy/official-software-kms-auto)
+
 ## ✨ Why Choose KMS Auto Activator?
 
 ### 🎯 Universal Compatibility
